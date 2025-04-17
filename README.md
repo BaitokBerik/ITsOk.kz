@@ -1,1 +1,0 @@
-# ITsOk.kz
